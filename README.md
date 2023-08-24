@@ -1,3 +1,3 @@
 # animation
 
-Click here to preview [Website](https://breaktocodewithroshan.githib.io/animation/)
+Click here to preview [Click here)(https://breaktocodewithroshan.github.io/animation/)
